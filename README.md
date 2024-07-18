@@ -7,9 +7,9 @@ Live Demo - https://quantumcoding123.github.io/Day-92-Amazing-Portfolio-Website-
 
 Instagram - https://www.instagram.com/krishnagiri433?igsh=d2F5cjBhY2Z3Mjdu
 
-Whatsapp - https://whatsapp.com/channel/0029VaVInCA2ZjCjXEf2IC2I
+GitHub - 
 
-GitHub - https://github.com/QuantumCoding123
+Facebook - https://www.facebook.com/krishnagiri433?mibextid=ZbWKwL
 
 YouTube - https://youtube.com/@krishna_giri55?si=tkIoKQ39R_xRI8NB
 
