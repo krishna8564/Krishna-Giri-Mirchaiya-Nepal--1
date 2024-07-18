@@ -1,6 +1,6 @@
 # Krishna-Giri-Mirchaiya-Nepal--1
 
-Live Demo - https://quantumcoding123.github.io/Day-92-Amazing-Portfolio-Website-Using-HTML-CSS-JS/
+Live Demo - https://krishna8564.github.io/Krishna-Giri-Mirchaiya-Nepal--1/
 
 
 # Join Us
