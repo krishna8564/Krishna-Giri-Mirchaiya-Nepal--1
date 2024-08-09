@@ -7,7 +7,7 @@ Live Demo - https://krishna8564.github.io/Krishna-Giri-Mirchaiya-Nepal--1/
 
 Instagram - https://www.instagram.com/krishnagiri433?igsh=d2F5cjBhY2Z3Mjdu
 
-GitHub - 
+GitHub - https://github.com/krishna8564
 
 Facebook - https://www.facebook.com/krishnagiri433?mibextid=ZbWKwL
 
